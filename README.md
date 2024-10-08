@@ -5,5 +5,7 @@ Antes de comenzar veremos qué tal vamos planificando las tareas
 ![image](https://github.com/user-attachments/assets/3292ff29-4099-4bf4-b70d-ccaffa2365f5)
 
 
-![image](https://github.com/user-attachments/assets/e59ff05a-075e-482b-97b1-d3988cc80f58)
+![image](https://github.com/user-attachments/assets/75e03fd6-0658-4cbe-b4b3-52f749cc518b)
+
+
 
